@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @beagaymer or for friend's just "BH".
+- 👀 I’m interested in  front-end, html and pyt. 
+- 🌱 I’m currently learning  A.D.S in senac-RS.
+- 📫 To reach me you can follow me in instagram or here!
